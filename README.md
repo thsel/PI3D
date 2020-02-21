@@ -13,3 +13,5 @@ https://detail.tmall.com/item.htm?id=597659721677&spm=a1z09.2.0.0.4ab22e8dfMrR4h
 
 链接：https://pan.baidu.com/s/1KDHTTOFXHUhmZuyejhWlWw 
 提取码：4jig
+
+http://t.me/thsel_py
